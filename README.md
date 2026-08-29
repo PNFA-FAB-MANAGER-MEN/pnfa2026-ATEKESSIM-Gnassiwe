@@ -1,1 +1,0 @@
-# pnfa2026-ATEKESSIM-Gnassiw-
